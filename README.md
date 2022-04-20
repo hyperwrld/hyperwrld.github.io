@@ -1,6 +1,0 @@
-# SamuelReister
-Aspiring Developer
-
-
-
-
